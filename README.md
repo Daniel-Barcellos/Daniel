@@ -29,4 +29,5 @@
 
 📫 **Entre em contato comigo**:  
 [LinkedIn](https://www.linkedin.com/in/daniel-rv-barcellos)  
-daniel.seuemail@gmail.com
+danielrosabarcellos17@gmail.com
+
